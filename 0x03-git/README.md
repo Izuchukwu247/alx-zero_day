@@ -1,1 +1,2 @@
-Happy to be a programmer
+Discipline and 
+Harwork is my watchward 
